@@ -1,21 +1,21 @@
 ### Welcome to the bellpeppers & beef rule page!
 
-  Be friendly and nice to each other. Lets all have a good time listening to good music._
+- Be friendly and nice to each other. Lets all have a good time listening to good music._
 
-  Please don't stay afk for too long or you'll eventually get kicked of the stage._
+- Please don't stay afk for too long or you'll eventually get kicked of the stage._
 
 ### Genres
 
-  The genres we play here are mostly hip-hop, electronic & jazz, but were open to anything thats good stuff. No watered down                   
+- The genres we play here are mostly hip-hop, electronic & jazz, but were open to anything thats good stuff. No watered down                   
   commercial pop/edm please.
-  If you're joining into an active session, try to catch the vibe of the music being played and go with that.
+  f you're joining into an active session, try to catch the vibe of the music being played and go with that.
 
 ### Admins & Mods
 
-  **jan**
+**jan**
 
-   From germany, so mostly active when its night
+- From germany, so mostly active when its night
 
-   _spotify:user:sodashaq_
+- _spotify:user:sodashaq_
 
 
