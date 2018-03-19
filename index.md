@@ -1,8 +1,8 @@
 ## welcome to the bellpeppers & beef rule page!
 
-  _be friendly and nice to each other. lets all have a good time listening to good music.
+  _be friendly and nice to each other. lets all have a good time listening to good music._
 
-  please don't stay afk for too long or you'll eventually get kicked of the stage._
+  _please don't stay afk for too long or you'll eventually get kicked of the stage._
 
 **genres**
 
