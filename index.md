@@ -6,9 +6,9 @@
 
 ### Genres
 
-- The genres we play here are mostly hip-hop, electronic & jazz, but were open to anything thats good stuff. No watered down                   
+- The genres we play here are mostly hip-hop, electronic & jazz, but were open to almost anything. No watered down                   
   commercial pop/edm please.
-  f you're joining into an active session, try to catch the vibe of the music being played and go with that.
+- If you're joining into an active session, try to catch the vibe of the music being played and go with that.
 
 ### Admins & Mods
 
