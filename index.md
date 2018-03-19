@@ -16,6 +16,6 @@
 
 - From germany, so mostly active when its night
 
-- _spotify:user:sodashaq_
+- Username on spotify: sodashaq
 
 
